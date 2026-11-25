@@ -6,6 +6,11 @@
 
 **https://ramadankarym.github.io/**
 
+## 📣 فيسبوك
+
+- الصفحة: https://www.facebook.com/share/1cHtmrMAJj/
+- المجموعة: https://www.facebook.com/share/g/1ECezVvJub/
+
 ## ✨ المميزات
 
 - 🕐 عداد تنازلي لحظة بلحظة لبداية الشهر الكريم، مع مواقيت رمضان
